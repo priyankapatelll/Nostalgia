@@ -1,2 +1,2 @@
 # Nostalgia
-This is a series dedicated to those those grade-school memories in between the ring of bells--shown in a different for of craft &amp; newer ideas.
+This series is dedicated to those grade-school memories that took place between the ring of hallway bells. Classic nostalgic games & knick-knacks with my own crafty twists.
